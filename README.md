@@ -1,4 +1,4 @@
-### laur 🌲
+### Laur 🌲
 
 ### contact
 
