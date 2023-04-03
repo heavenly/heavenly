@@ -1,3 +1,3 @@
-### contact and info
+### welcome to my github page
 
-🏛️ website: https://helli.sh
+I'm a little inactive in public projects
